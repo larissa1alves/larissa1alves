@@ -8,8 +8,13 @@ Estudante do IFTM
 
 Apaixonado por futebol ⚽ — faço parte do time da escola
 
-apaixonada por filmes de romance 🎬
+Amo praticar esportes em geral 
 
+Gosto de passar tempo com minha família 👨‍👩‍👦
 
+Amo escuta música 🎵 — fã do Justin Bieber
 
+Adoro assistir filmes de romance 🎬
+
+Pessoa criativa e cheia de ideias 💡
 [![GitHub Streak](https://github-readme-streak-stats.herokuapp.com/?user=larissa1alves)](https://git.io/streak-stats)
